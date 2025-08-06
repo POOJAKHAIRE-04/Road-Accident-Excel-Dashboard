@@ -48,7 +48,7 @@ The purpose is to help identify patterns and trends in accidents and enhance dec
 MBA Student – Business Analytics  
 Passionate about solving real-world problems using data-driven insights and visual storytelling.
 
-🔗 [LinkedIn](https://www.linkedin.com/in/poojakhaire)
+🔗https://www.linkedin.com/in/pooja-khaire-138361324/
 
 ---
 
